@@ -5,4 +5,4 @@ This space is a quiet little corner where I collect fragments, notes, and words 
 **Curious to see more? It’s all here:**  
 👉 [Wedding Photographer in Cardiff and South Wales](https://yourweddingphotographer.uk)
 
-You're welcome to explore, borrow inspiration, or just enjoy the read.
+You're welcome to explore, borrow inspiration, or just enjoy the read.....
