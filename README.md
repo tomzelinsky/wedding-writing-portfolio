@@ -8,4 +8,4 @@ This space is a quiet little corner where I collect fragments, notes, and words 
 You're welcome to explore, borrow inspiration, or just enjoy the read.
 
 🖋️ Want to see it live?  
-Browse the writing samples as a website here → [Wedding Writing Portfolio](https://tomzelinsky.github.io/wedding-writing-portfolio/)
+Browse the writing samples as a website here → [a quiet collection of wedding stories and notes](https://tomzelinsky.github.io/wedding-writing-portfolio/)
